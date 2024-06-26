@@ -45,6 +45,6 @@ Dark Souls<br/>
 maruko<br/>
 Shadow of the Colossus<br/>
 スマブラ <br/>
-
+ドラゴンクエストIX　星空の守り人
 
 
